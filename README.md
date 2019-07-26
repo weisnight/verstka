@@ -1,1 +1,1 @@
-"# verstka" 
+bla bla 
